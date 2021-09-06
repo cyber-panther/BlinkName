@@ -1,3 +1,3 @@
 # BlinkName
 
-YouTube Video Link - 
+YouTube Video Link - https://youtu.be/GgFQGfl8s3Y
